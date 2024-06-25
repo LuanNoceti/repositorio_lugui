@@ -1,3 +1,2 @@
-# repositorio_lugui
+yay
 
-eu amo o guilherme S2
